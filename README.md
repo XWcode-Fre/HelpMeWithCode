@@ -1,0 +1,1 @@
+Guys! Sorry for Russian language in my code😭😭 I want to do my browser open source and i'm added a comments sooo don't say this is "chat gpt code" bcz it's was be a open source ya, and my browser is not ready fr
